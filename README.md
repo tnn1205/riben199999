@@ -24,4 +24,4 @@
 
 收藏本站，开启你的2025日本AV看片之旅。成人羞羞免费，让每一次观影都成为享受！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben199999 ）</span> 
